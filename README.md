@@ -1,4 +1,4 @@
-Just a boring guy don't mind.
+Script Kiddy
 
 <!---
 - 👋 Hi, I’m @JohnKozak
